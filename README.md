@@ -3,7 +3,7 @@
 📧 Email: shaikjanishariff@gmail.com  
 🔗 LinkedIn: [jani-shariff-shaik](https://www.linkedin.com/in/jani-shariff-shaik-374998292/)  
 🌐 Portfolio: [janishariffshaik.wixstudio.com/portfolio](https://janishariffshaik.wixstudio.com/portfolio)  
-💻 GitHub: [github.com/janishariffshaik](https://github.com/janishariffshaik)
+💻 GitHub: [github.com/janishariffshaik](https://github.com/Jani-Shaik-1406)
 
 ---
 
